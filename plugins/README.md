@@ -1,0 +1,9 @@
+-----------
+
+***WELCOME TO BOYKA XD PLUGINS LIST CREATED BY TELKING NOT DEV 263***
+
+-----------
+
+***THE WORLD BEST WHATSAPP BOT***
+
+----------
